@@ -1,4 +1,4 @@
-Falls eine Diskussion langweilig zu werden droht, einfach eine der folgenden Phrasen einwerfen.
+Falls eine Diskussion langweilig zu werden droht, einfach eine der folgenden Phrasen einwerfen:
 
 
 Ich würde mich mit Ihnen sehr gern weiter geistig duellieren, doch ich bemerke, dass sie unbewaffnet sind.
